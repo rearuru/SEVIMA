@@ -1,2 +1,2 @@
-# SEVIMA.
+# SEVIMA
 Pembelajaran diera pandemi
