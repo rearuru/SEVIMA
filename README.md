@@ -1,0 +1,2 @@
+# SEVIMA.
+Pembelajaran diera pandemi
